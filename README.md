@@ -9,3 +9,11 @@
 3. Dont use the bot for Loud Sounds!
 4. and Dont Break the TOS
 5. If you break? I will ban you from GardiMusic Support Server!
+
+
+# Privacy Policy
+
+Hey Use this bot for something? And Dont break the TOS Of The Bot,
+So I Need you to Follow This TOS and I Thanks to You?
+
+And Something I Just Do This Bot for You?
